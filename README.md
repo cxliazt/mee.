@@ -13,4 +13,4 @@
 
 
 𓏵  ..  overall, have a nice day and hope to talk soon !! ^^
-![Uploading ㊕ ި   ㅤㅤㅤㅤㅤㅤㅤ❮ BA𝝢̸̸⃨NER ❯꯭ㅤ꯭ㅤ꯭̄ㅤ.jpg…]()
+![㊕ ި   ㅤㅤㅤㅤㅤㅤㅤ❮ BA𝝢̸̸⃨NER ❯꯭ㅤ꯭ㅤ꯭̄ㅤ](https://github.com/user-attachments/assets/637f7572-b789-40de-8933-a67ee91c8c89)
