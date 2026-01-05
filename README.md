@@ -1,4 +1,4 @@
-# mee.
+![㊕ ި   ㅤㅤㅤㅤㅤㅤㅤ❮ BA𝝢̸̸⃨NER ❯꯭ㅤ꯭ㅤ꯭̄ㅤ](https://github.com/user-attachments/assets/9b7da755-1d62-4ed6-9d14-4c7d06c048a5)# mee.
 ⏖   16   ﹒  she/her   ﹒   bisexual 
 
 @ㅤㅤㅤㅤㅤㅤㅤㅤㅤ;; I play roblox, minecraft, pony town, and other games im still experiencing.
@@ -13,3 +13,4 @@
 
 
 𓏵  ..  overall, have a nice day and hope to talk soon !! ^^
+![Uploading ㊕ ި   ㅤㅤㅤㅤㅤㅤㅤ❮ BA𝝢̸̸⃨NER ❯꯭ㅤ꯭ㅤ꯭̄ㅤ.jpg…]()
