@@ -7,7 +7,7 @@
 
 @ㅤㅤㅤㅤㅤㅤㅤㅤㅤ;; Im Mexican, and I speak 2 langueges, also learning korean and portuguese.
 
-@ㅤㅤㅤㅤㅤㅤㅤㅤㅤ;; Any questions or concerns u may alaways ask me, besides if its personal, that till we are good friends.
+@ㅤㅤㅤㅤㅤㅤㅤㅤㅤ;; Any questions or concerns u may alaways ask me, besides if its personal, that can be till we are good friends.
 
 @ㅤㅤㅤㅤㅤㅤㅤㅤㅤ;; If u wanna friend me and then leave me after 2 days, dont bother on contatcting me, lmao.
 
